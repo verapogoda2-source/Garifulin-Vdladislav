@@ -1,1 +1,1 @@
-# Garifulin-Vdladislav
+Гарифулин Владислав
